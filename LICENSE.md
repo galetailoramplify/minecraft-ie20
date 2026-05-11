@@ -1,4 +1,4 @@
-#  
+#  grow a garden Scripts best is the best grow a garden Script, featuring auto-sell and no clip. Safe and powerful for all your needs.
 
 
 
